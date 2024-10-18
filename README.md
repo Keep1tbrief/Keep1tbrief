@@ -28,6 +28,6 @@ I have multiple different twitter accounts which I will tag in whatever tweet I 
 Muse:
 
 Yuta is 17, since I have him placed in 2018. He LOVES his salted Cabbage and will lose his shit if he can't get his hands on any, so ignore his tweets comparing him not getting cabbage to Jesus not getting figs.. 
-(For clarification, Jesus cursed the fig tree because it didn't have figs on it when he had been craving figs for 3 days. it was not in season for the tree to grow figs) ((also, Yuta is religious in my au but doesn't push it onto others.))
+(For clarification, Jesus cursed the fig tree because it didn't have figs on it when he had been craving figs for 3 days. it was not in season for the tree to grow figs)
 
 He has yet to find his friends on twitter, so he talks to himself there a lot. He's also very emo abt Rika dying so give him a bit...
