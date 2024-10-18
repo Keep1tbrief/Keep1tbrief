@@ -13,3 +13,6 @@ I don't mind roleplaying! Don't be afraid to ask.
 I LOVE showing off my ponies. PLEASE ASK ABT THEM (if you have any recommendations for my ponies pls lmk ☺)
 
 I have no problem adding people on other socials and being friends, but nothing more. I have a girlfriend irl who I love VERY MUCH (ty)
+
+
+***𝙏𝙒𝙏 𝙄𝙉𝙁𝙊***
