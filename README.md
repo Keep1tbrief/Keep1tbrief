@@ -31,3 +31,6 @@ Yuta is 17, since I have him placed in 2018. He LOVES his salted Cabbage and wil
 (For clarification, Jesus cursed the fig tree because it didn't have figs on it when he had been craving figs for 3 days. it was not in season for the tree to grow figs)
 
 He has yet to find his friends on twitter, so he talks to himself there a lot. He's also very emo abt Rika dying so give him a bit...
+
+
+Ochako is 16. She loves her friends and spends most of her time with them. She loves making other people happy and is always kind/positive no matter the situation. 
