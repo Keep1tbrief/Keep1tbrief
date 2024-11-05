@@ -1,9 +1,5 @@
 ***PONYTOWN INFO***
 
-Hii 
-
-In case you've seen me on the 18+ server and have a minors dni rule, please be aware I am NOT 18 yet. I am 17, turning 18 in December 2024. I am in the 18+ server because I would rather not deal with superminors (11 y/os) on safe server...
-
 I am usually in Ponytown with a Jujutsu Kaisen pony by spawn. I'm super friendly! Don't hesitate to int
 
 I ship Satosugu and Itafushi
